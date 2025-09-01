@@ -17,3 +17,15 @@ Our hose clamps are widely used in:<br>
 Each clamp is designed to provide maximum efficiency, making MANXPOWER a trusted choice for professionals and organizations across multiple industries.<br>
 <h3>Your Trusted Partner for Hose Clamp Solutions</h3>
 At MANXPOWER, we understand the importance of reliability in safety and industrial equipment. That’s why we are dedicated to providing heavy duty hose clamps, stainless steel hose clamps, and <a href="https://manximpex.com/hose-clamps/" title="hose clip clamps" alt"hose clip clamps" <a>hose clip clamps</a> that deliver exceptional performance. Whether you are a business looking for a <a href="https://manximpex.com/hose-clamps/" title="hose clamps supplier and distributor" alt"hose clamps supplier and distributor" <a>hose clamps supplier and distributor </a> or a professional seeking top-quality products, MANXPOWER is your go-to brand for all hose clamp needs.<br>
+<h3>Get in touch with us:</h3>
+<li>For order,visit: https://manximpex.com/fire-extinguisher-2/ </li><br>
+<li>E-mail: info@manximpex.com </li><br>
+<li>Contact number: +91- 7428115550, +91- 7428115550.</li><br>
+<li>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006.</li><br>
+<h3>Follow us on:</h3>
+<li>Instagram: https://www.instagram.com/manximpex/ </li><br>
+<li><b>Facebook: https://www.facebook.com/manximpex/ </b></li><br>
+<li>LinkedIn: https://in.linkedin.com/company/manx-impex </li><br>
+<li>Pinterest: https://in.pinterest.com/manximpex/ </li><br>
+<h3>People also searches:</h3>
+<a href="https://manximpex.com/hose-clamps/" title="Hose clamps manufacturer" alt"Hose clamps manufacturer" <a>Hose clamps manufacturer</a> | <a href="https://manximpex.com/hose-clamps/" title="Hose clip clamps manufacturer & Supplier in Delhi" alt" Hose clip clamps manufacturer & Supplier in Delhi" <a> Hose clip clamps manufacturer & Supplier in Delhi</a> | <a href="https://manximpex.com/hose-clamps/" title="Hose clamps sizes" alt"Hose clamps sizes" <a>Hose clamps sizes</a> | <a href="https://manximpex.com/hose-clamps/" title="Hose clamps supplier and distributor in India" alt"Hose clamps supplier and distributor in India" <a>Hose clamps supplier and distributor in India </a> | <a href="https://manximpex.com/hose-clamps/" title="Hose Clamps types" alt"Hose Clamps types" <a>Hose Clamps types</a> 
